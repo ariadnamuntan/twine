@@ -15,3 +15,5 @@ Ariadna Muntan
 ![Image](https://github.com/user-attachments/assets/0945e13d-2611-46c6-8343-ad67e865fcde)
 
 ![Image](https://github.com/user-attachments/assets/ad7c4564-c842-49cf-850e-5ca477324526)
+
+![Image](https://github.com/user-attachments/assets/529ea2f8-9f5a-4aaa-b82e-aacafbf85f74)
